@@ -1,5 +1,5 @@
-# cleaning-products
-Green Cleaning Products
+# Cleaning Products
+Green Cleaning Products Healthy For the Environment and Healthy for Personal Use
 
 Quick Tip: All About Vinegar
 https://www.youtube.com/watch?v=1Hs4myDE_iE
